@@ -1,37 +1,30 @@
-## Welcome to GitHub Pages
+## Ryan Ramsay is Graffiti Artist Rezwonk
 
-You can use the [editor on GitHub](https://github.com/Rezwonk/rezwonk.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
+He is a trust fund kid and his mother runs a set of villas in Portugal (http://www.quintadocobral.com/).
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
 ```
+Quinta do Cobral
+Rua 21 Junho, Lagares da Beira,
+Oliveira do Hospital, 3405-157,
+Portugal
+00351 927057286
+info@quintadocobral.com
+```
+I have provided evidence of Ryan Ransay being connected to the alias REZWONK in this repository.
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+Proof that the image of him in the same jacket as the one in <a href="https://github.com/Rezwonk/RyanRamsay/blob/main/Down%20at%20the%20wall%20with%20Rezwonk.mp4?raw=true">this video</a> is archived at:<br>
+https://web.archive.org/web/20201209185338if_/https://www.facebook.com/photo.php?fbid=1842086359366510&set=pb.100006954905894.-2207520000..&type=3
 
-### Jekyll Themes
+Original link:<br>
+https://www.facebook.com/photo.php?fbid=1842086359366510&set=pb.100006954905894.-2207520000..&type=3
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Rezwonk/rezwonk.github.io/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+Backed up as Screenshot:<br>
+https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/Screenshot_2020-12-09_18-54-22.png
 
-### Support or Contact
+This evidence is irrefutable, impossible to take down and prosecutable.
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Ryan is a piece of shit person, avoid at all costs, currently under police surveillance (since august) do not attempt to phone, SMS, or meet up with him, very likely to turn snitch to reduce his own sentencing.
+
+<a href="https://github.com/Rezwonk/RyanRamsay/archive/main.zip">
+<img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/57471773_2299680220273786_5624822207453593600_n.jpg" /><br>
+<b>Click here to download the entire zip file of evidence against Ryan Ramsay aka RESWONK, Bristol Graffiti Artist.</b></a>
