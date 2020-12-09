@@ -12,7 +12,7 @@ info@quintadocobral.com
 ```
 I have provided evidence of Ryan Ramsay being connected to the alias REZWONK in <a href="https://github.com/Rezwonk/RyanRamsay">this repository</a>.
 
-Proof that the image of him in the same jacket as the one in <a href="https://github.com/Rezwonk/RyanRamsay/blob/main/Down%20at%20the%20wall%20with%20Rezwonk.mp4?raw=true">this video</a> the original is <a href="https://www.facebook.com/photo.php?fbid=1842086359366510&set=pb.100006954905894.-2207520000..&type=3">here on facebook</a> and a screenshot backup is <a href="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/Screenshot_2020-12-09_18-54-22.png">here</a>.<br>
+Proof that the image of him in the same jacket as the one in <a href="https://github.com/Rezwonk/RyanRamsay/blob/main/Down%20at%20the%20wall%20with%20Rezwonk.mp4?raw=true">this video</a> the original photo of him in this jacket is <a href="https://www.facebook.com/photo.php?fbid=1842086359366510&set=pb.100006954905894.-2207520000..&type=3">here on facebook</a> and a screenshot backup is <a href="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/Screenshot_2020-12-09_18-54-22.png">here</a>.<br>
 
 This evidence is irrefutable, impossible to take down and prosecutable.
 
