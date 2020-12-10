@@ -23,6 +23,8 @@ Ryan is a piece of shit person, avoid at all costs, currently under police surve
 <b>Click here to download the entire zip file of evidence against Ryan Ramsay aka RESWONK, Bristol Graffiti Artist.</b></a>
 
 <video width="100%" controls>
-<source src="https://www.facebook.com/photo.php?fbid=1842086359366510&set=pb.100006954905894.-2207520000..&type=34" type="video/mp4">
+<source src="https://github.com/Rezwonk/RyanRamsay/blob/main/Down%20at%20the%20wall%20with%20Rezwonk.mp4?raw=true" type="video/mp4">
 Your browser does not support the video tag.
-</video> 
+</video><br>
+<img src="https://github.com/Rezwonk/RyanRamsay/blob/main/Screenshot_2020-10-29%20Ryan%20Ramsay.png" /><br>
+<img src="https://github.com/Rezwonk/RyanRamsay/blob/main/18199093_1272102769576203_3274965348434990274_n.jpg" /><br>
