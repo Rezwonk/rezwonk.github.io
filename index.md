@@ -1,4 +1,4 @@
-## Ryan Ramsay is Graffiti Artist Rezwonk
+## Ryan Ramsay is Bristol Graffiti Artist Rezwonk
 
 He is a trust fund kid and his mother runs a set of villas in Portugal at <a href="http://www.quintadocobral.com/">www.quintadocobral.com</a>
 
