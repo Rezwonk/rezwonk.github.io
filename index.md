@@ -26,5 +26,5 @@ Ryan is a piece of shit person, avoid at all costs, currently under police surve
 <source src="https://github.com/Rezwonk/RyanRamsay/blob/main/Down%20at%20the%20wall%20with%20Rezwonk.mp4?raw=true" type="video/mp4">
 Your browser does not support the video tag.
 </video><br>
-<img src="https://github.com/Rezwonk/RyanRamsay/blob/main/Screenshot_2020-10-29%20Ryan%20Ramsay.png" /><br>
-<img src="https://github.com/Rezwonk/RyanRamsay/blob/main/18199093_1272102769576203_3274965348434990274_n.jpg" /><br>
+<img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/Screenshot_2020-10-29%20Ryan%20Ramsay.png" /><br>
+<img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/18199093_1272102769576203_3274965348434990274_n.jpg" /><br>
