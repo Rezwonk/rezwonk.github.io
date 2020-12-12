@@ -33,4 +33,5 @@ Ryan is a piece of shit person, avoid at all costs, currently under police surve
 <img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/ryanramsay4-larger.png" /><br>
 <img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/ryanramsay3.bmp" /><br>
 <img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/ryanramsay3-enlarged.png" /><br>
-
+<img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/53478335_2277661505808991_6268385849457508352_n.jpg" /><br>
+<img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/20800080_1954483938126751_5981998723567043026_n.jpg" /><br>
