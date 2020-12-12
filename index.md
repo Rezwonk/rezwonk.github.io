@@ -14,10 +14,6 @@ I have provided evidence of Ryan Ramsay being connected to the alias REZWONK in 
 
 Proof that the image of him in the same jacket as the one in <a href="https://github.com/Rezwonk/RyanRamsay/blob/main/Down%20at%20the%20wall%20with%20Rezwonk.mp4?raw=true">this video</a> the original photo of him in this jacket is <a href="https://www.facebook.com/photo.php?fbid=1842086359366510&set=pb.100006954905894.-2207520000..&type=3">here on facebook</a>, a screenshot backup is <a href="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/Screenshot_2020-12-09_18-54-22.png">here</a> and archived <a href="https://web.archive.org/web/20201209200151/https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/Screenshot_2020-12-09_18-54-22.png">here</a>.<br>
 
-This evidence is irrefutable, impossible to take down and prosecutable. It is also all sourced from the public domain.
-
-Ryan is a piece of shit person, avoid at all costs, currently under police surveillance do not attempt to phone, SMS, or meet up with him, very likely to turn snitch to reduce his own sentencing.
-
 <a href="https://github.com/Rezwonk/RyanRamsay/archive/main.zip">
 <img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/57471773_2299680220273786_5624822207453593600_n.jpg" /><br><br>
 <b>Click here to download the entire zip file of evidence against Ryan Ramsay aka RESWONK, Bristol Graffiti Artist.</b></a>
